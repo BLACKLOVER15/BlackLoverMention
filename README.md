@@ -47,7 +47,7 @@
 
 ## CREDITS
 
-- [ʙʀᴀɴᴅᴇᴅ ᴋɪɴɢ](https://t.me/saikosaiyan)
+- [Black Lover](https://t.me/saikosaiyan)
 
 - [ʏᴏᴜᴛᴜʙᴇ](https://youtube.com/@Dkstudyjunction?si=imYQBR88lOMVeaCQ)
 
